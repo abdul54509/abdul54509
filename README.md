@@ -1,4 +1,4 @@
-👋 Hi, I’m Mohd Abdul Haq
+
 <a href="https://ibb.co/bRj68YX"><img src="https://i.ibb.co/h1xgtrV/ab.jpg" alt="ab" border="0"></a>
 - 👀 I thrive in rapidly growing and passionate about technology.
 - 🌱 My intellectual curiosity also drives me to be a life long learner. 
